@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @filizoglumuh
-- 👀 I’m interested in banking software
-- 🌱 I’m currently learning programming
+- 👀 I’m interested in motocycle courier.
+- 🌱 I’m currently tiktok
 - 💞️ I’m looking to collaborate on camping.
 - 📫 How to reach me mail.
 
